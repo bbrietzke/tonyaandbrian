@@ -1,0 +1,11 @@
+---
+layout: post
+title: First Post
+category: general
+tags:
+  - notes
+---
+
+This is here as a placeholder right now.
+
+Where is the layout for this page?
