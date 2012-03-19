@@ -7,19 +7,19 @@ Maybe you've heard and maybe you haven't, but Tonya Hartwich and Brian Brietzke 
 
 Turns out, there will be a wedding and everything!  
 
-### Who is getting married?
-
 ### When will it be?
 
-The wedding will be held on July the 14th of 2012.  That is the second saturday in July of this year.  __Trust me__, we know that isn't that far off!
+The wedding will be held on July the 14th of 2012.  The wedding will start at 7PM.
 
 ### Where will it be at?
 
-The ceremony will be held at the [Grand Superior Lodge](http://www.grandsuperior.com/).  We haven't decided on a time yet, but it will be later in the day or early evening.
+The ceremony and reception will be held at the [Grand Superior Lodge](http://www.grandsuperior.com/). 
 
-You are certainly welcome to stay at the lodge.  They do have a limited number of rooms, so book early and often.  If you would like a discount, just tell them you are a AAA member.  They don't verify the membership.
+You are certainly welcome to stay at the lodge.  We have a block of rooms reserved, so when you call to book your room mention that it's for the Hartwich/Brietzke wedding.  If you would like a discount, just tell them you are a AAA member.  They don't verify the membership.
 
 If you don't want to stay at the lodge, there should be hotels in [Two Harbors](https://www.google.com/search?btnG=1&pws=0&q=hotels+in+two+harbors+mn+area) or in [Duluth](https://www.google.com/search?btnG=1&pws=0&q=hotels+in+duluth+mn+area).  We're not specifically recommending any of them, just find one you like.
+
+This is a very touristy area so you will need to book soon or there may not rooms available.
 
 ### How do I get there?
 
@@ -33,13 +33,13 @@ If you're hitch hiking, be careful, Minnesota has a lot of serial killers.  _Ser
 
 ### What can we do in Duluth?
 
-Duluth is a cool little city on Lake Superior.  To see the sites, visit the [tourism website](http://visitduluth.com/home.php) and plan accordingly.
+Duluth is a cool city on Lake Superior.  To see the sites, visit the [tourism website](http://visitduluth.com/home.php) and plan accordingly.
 
 ### What should I bring?
 
 Yourself and a sense of humor.  If you're going to be grumpy or have a sad face, you will get reprimanded.  Three reprimands and we'll figure out what to do with you.
 
-We would prefer that you donate to the Rabbit Rescue or to the scholarship fund, instead of bringing gifts.
+In lieu of gifts, we ask that you donate to the Rabbit Rescue (where Augustus was adopted from) or the scholarship fund in memory of the groom's mother.  The donation sites are still in progress, so check back for the donation sites prior to the wedding.
 
 ### What are we doing for the wedding?
 
