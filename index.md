@@ -39,7 +39,7 @@ Duluth is a cool city on Lake Superior.  To see the sites, visit the [tourism we
 
 Yourself and a sense of humor.  If you're going to be grumpy or have a sad face, you will get reprimanded.  Three reprimands and we'll figure out what to do with you.
 
-In lieu of gifts, we ask that you donate to the Rabbit Rescue (where Augustus was adopted from) or the scholarship fund in memory of the groom's mother.  The donation sites are still in progress, so check back for the donation sites prior to the wedding.
+In lieu of gifts, we ask that you donate to the Rabbit Rescue (where Augustus was adopted from) or the scholarship fund in memory of the groom's mother.  You can [go here for more details][donations]
 
 ### What are we doing for the wedding?
 
