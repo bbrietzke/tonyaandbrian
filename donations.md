@@ -3,6 +3,9 @@ layout: default
 title: Donations
 ---
 
+</div>
+
+<div class='row'>
 <div class='span8'>
 
 ### The Rabbit Rescue
