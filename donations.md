@@ -4,6 +4,7 @@ title: Donations
 ---
 
 </div>
+</div>
 
 <div class='row'>
 <div class='span8'>
