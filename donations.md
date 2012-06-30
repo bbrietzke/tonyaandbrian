@@ -19,6 +19,8 @@ title: Donations
 
 <h3>Shirley Brietzke Memorial</h3>
 
+<p>
+
 <br/>
 
 <object width="250" height="250"><param name="movie" value="http://widget.chipin.com/widget/id/a53754282998160b"></param><param name="allowScriptAccess" value="always"></param><param name="wmode" value="transparent"></param><param name="event_title" value="Shirley%20Brietzke%20Memorial"></param><param name="color_scheme" value="blue"></param><embed src="http://widget.chipin.com/widget/id/a53754282998160b" flashVars="event_title=Shirley%20Brietzke%20Memorial&color_scheme=blue" type="application/x-shockwave-flash" allowScriptAccess="always" wmode="transparent" width="250" height="250"></embed></object>
