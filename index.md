@@ -13,5 +13,5 @@ The party will be held on November the 3rd of 2012.  The party will start at 7PM
 
 ### Where will it be at?
 
-The ceremony and reception will be held at the [The OASIS on Lake Travis](http://www.oasis-austin.com/). 
+The party will be held at the [The OASIS on Lake Travis](http://www.oasis-austin.com/). 
 
