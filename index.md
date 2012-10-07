@@ -9,7 +9,9 @@ The wedding was in Minnesota, off the north shore of Lake Superior.  But, there'
 
 ### When will it be?
 
-The party will be held on November the 3rd of 2012.  The party will start at 7PM.
+The party will be held on November the 3rd of 2012.  The party will start at 6PM.
+
+The dress code will be casual ( i.e. jeans, polo ). 
 
 ### Where will it be at?
 
