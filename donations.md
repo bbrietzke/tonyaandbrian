@@ -17,3 +17,5 @@ To make a non-tax deductible donation, please use the chipin widget below.
 
 
 If you want to make a tax deductible donation, please contact the groom.
+
+
